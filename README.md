@@ -1,1 +1,1 @@
-Simulación de metodología SCRUM
+                    Ricardo hola equipo 7
